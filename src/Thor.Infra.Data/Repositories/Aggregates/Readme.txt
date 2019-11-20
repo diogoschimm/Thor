@@ -1,1 +1,1 @@
-Informa‡äes
+Info
